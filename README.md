@@ -1,5 +1,10 @@
 Daniil S.
+
+
 Moscow, RU 🇷🇺
+
+
 NUST "MISIS"
 
-email: dvshumny@gmail.com
+
+**email:** dvshumny@gmail.com
